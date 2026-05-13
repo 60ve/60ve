@@ -7,6 +7,9 @@
 
 i like making random crap from random 
 
+check out the things i'm working on
+discord: [.kit discord server](https://discord.gg/W4VKbahtqA)
+offsets: [ios roblox offsets](https://github.com/estacc123-ux/ios-roblox-offsets)
 ---
 
 
